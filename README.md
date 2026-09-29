@@ -1,0 +1,2 @@
+# premium-south-001-south-of-england-hedge-competi
+Tired of misplacing your hedge competition scoresheets or forgetting which varieties you entered last year? The South of England Hedge Competition Log is your digital field notebook to track every entry, judge feedback, and strategic note in one place.  This Notion template transforms chaotic paper notes into a structured, searchable database for y
